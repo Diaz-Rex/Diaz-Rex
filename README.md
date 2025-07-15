@@ -1,3 +1,6 @@
+<h1>Hi! Rex Vincent Allen A. Diaz</h1>
+
+
 - 👋 Hi, I’m @Diaz-Rex
 - 👀 I’m interested in reading light novel & fan-fictions
 - 🌱 I’m currently learning to code
