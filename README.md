@@ -1,4 +1,4 @@
-<h1>Hi! Rex Vincent Allen A. Diaz</h1>
+<h1>Hi! I'm Rex Vincent Allen A. Diaz</h1>
 
 
 - 👋 Hi, I’m @Diaz-Rex
